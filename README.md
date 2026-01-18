@@ -6,7 +6,7 @@
 $${\color{#ff195b}꒰    .  𝓥𝓮𝓵   ⸝⸝}$$ , $$he$$ / $${\color{#ff195b}she}$$ </br>
 ![dividermed](https://file.garden/ZhR7DLcFMh_Z3OTH/depressant/rufflesblurred02) <br>
 $$.　15　,𝒎𝒆𝒙𝒊𝒄𝒂𝒏　$$ ![pixel1](https://files.catbox.moe/qx67xo.gif)  $${\color{#ff195b}　𝒆𝒏𝒇𝒑 ₊˙ 𝟕𝒘𝟖　}$$.  <br>
-![pixel2](https://files.catbox.moe/7kj5md.jpg) ![adhd](https://i.postimg.cc/sX6xgTPR/Hello-IMG1721006656509.gif)  $$bigender$$ , $${\color{#ff195b}demi-aroace}$$ , $$panromantic$$  ![button2](https://i.postimg.cc/yxfXMHNM/heart.gif) ![pixel3](https://files.catbox.moe/1o1r7q.jpg)
+![pixel2](https://files.catbox.moe/7kj5md.jpg) ![adhd](https://i.postimg.cc/sX6xgTPR/Hello-IMG1721006656509.gif)  $$bigender$$ , $${\color{#ff195b}demi-aroace}$$ , $$biromantic$$  ![button2](https://i.postimg.cc/yxfXMHNM/heart.gif) ![pixel3](https://files.catbox.moe/1o1r7q.jpg)
 <br>
 [rentry](https://rentry.co/radionapple) , ![and](https://files.catbox.moe/7tymp4.gif) , [contact](https://tinyurl.com/5n83mcde)
 <br>
